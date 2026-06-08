@@ -5,7 +5,7 @@
 
 # Nama Penyusun
 1. Reyfani Nazuwa Putri ( 25032014076 )
-2. Tshabita Roihana Yusriah Iman ( 25032014050 )
+2. Tsabhita Roihana Yusriah Iman ( 25032014050 )
 3. Azzahra Regita Cahyani ( 25032014071 )
 
 ---
